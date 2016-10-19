@@ -1,1 +1,3 @@
 # nowe
+
+Autor Dominik Rybak
