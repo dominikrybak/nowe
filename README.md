@@ -7,4 +7,4 @@ zmiany w pliku
 asdasdasdasdasdaa
 assdasdasdasdsadasd
 asdasdasdsadsadasd
-s
+sasdsadasdasda
